@@ -9,3 +9,5 @@ Gostou do curso? Quer mais? Ajude com uma doação, até um café é válido =)
 teste1
 
 Outros curso em : [willian justen cursos](http://willianjusten.teachablçe.com)
+
+modificaçoes do william pro reset
